@@ -7,3 +7,6 @@ Beetlejuice (alternativer deutscher Titel: Lottergeist Beetlejuice) ist eine US-
 * Musik: Danny Elfman
 * Kamera: Thomas E. Ackerman
 * Winona Ryder: Lydia Deetz
+
+Beetlejuice:
+> Der Geist, der am meisten zu bieten hat!
