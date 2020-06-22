@@ -10,3 +10,7 @@ Beetlejuice (alternativer deutscher Titel: Lottergeist Beetlejuice) ist eine US-
 
 Beetlejuice:
 > Der Geist, der am meisten zu bieten hat!
+
+
+<img src="https://de.wikipedia.org/wiki/Beetlejuice#/media/Datei:Beetlejuice_at_Universal_Studios_Hollywood.JPG"/>
+© Mr Bullitt from Sweden
